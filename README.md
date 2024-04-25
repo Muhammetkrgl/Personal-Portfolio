@@ -1,0 +1,1 @@
+https://krglpersonalportfolio.netlify.app/
